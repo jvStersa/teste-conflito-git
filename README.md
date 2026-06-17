@@ -1,1 +1,2 @@
-Alteração feita pelo Terminal 2 - Joao
+Alteração feita pelo Terminal 1 e Terminal 2 - Joao
+
